@@ -1,3 +1,3 @@
 #Demo
 
-In the name of GOD almighty may Allah bless us 
+In the name of GOD almighty may Allah bless us !
